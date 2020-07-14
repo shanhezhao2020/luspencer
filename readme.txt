@@ -10,3 +10,5 @@ kuo yi bu kuo yi.
 lai ba zhan shi.
 
 jixu zhanshi.
+
+hei man ,how are you ,put yoyur handup!
